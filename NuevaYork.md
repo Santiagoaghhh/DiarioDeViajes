@@ -1,2 +1,0 @@
-# Nueva York, Estados Unidos
-
