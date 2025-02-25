@@ -12,7 +12,7 @@ Durante el resto del año se alternan periodos más secos con periodos moderadam
 La precipitación media anual ronda los 750 mm.
 
 # Foto
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.italia.it%2Fes%2Flacio%2Froma&psig=AOvVaw063-GrCMsFTn5yiLBVZPMx&ust=1740571574883000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCICaksXk3osDFQAAAAAdAAAAABAE
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.italia.it%2Fes%2Flacio%2Froma&psig=AOvVaw063-GrCMsFTn5yiLBVZPMx&ust=1740571574883000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCICaksXk3osDFQAAAAAdAAAAABAE)
 
 # Información sobre Roma
 Roma es la Ciudad Eterna pero también la que te ofrece mil estímulos para disfrutarla en cada momento presente. Lo permanente es esa capacidad que tiene para encantarnos siempre. Con esta información de Turismo en Roma completamos nuestra guía. Te damos detalles prácticos y noticias que te ayuden a disfrutar de la ciudad durante tu viaje de placer.
