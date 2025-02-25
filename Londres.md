@@ -9,4 +9,5 @@ Actualmente los vuelos de bajo coste hacen que la escasa distancia entre España
 ## Photo
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Flondresando.com%2Fmonumentos%2F&psig=AOvVaw1_JfAa5N5GU5CnI_AT2dG-&ust=1740573371517000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOCrjp7r3osDFQAAAAAdAAAAABAE)
 
-
+## Información sobre Londres
+Aunque las lluvias sean frecuentes, siempre queda el consuelo de que no suele llover de forma abundante, sino que lo más normal es que se presente una llovizna suave pero constante.
