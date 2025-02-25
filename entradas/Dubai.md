@@ -6,7 +6,8 @@ En los Emiratos Árabes, 200 kilómetros al norte de su capital Abu Dhabi, se en
 ## Recomendation
 Conoce la cultura árabe a través de los perfumes.
 
-# Foto
+## Foto
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.expedia.com%2Fes%2FDubai.dx6053839&psig=AOvVaw2cmo4cs0_3h_8CwO1W6NLa&ust=1740576433778000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJiquNP23osDFQAAAAAdAAAAABAE)
 
-
+## Información General
+Dubái quiere convertirse a medio plazo en uno de los destinos turísticos más importantes del mundo y para ello está trabajando en construir su sueño en medio del desierto.
